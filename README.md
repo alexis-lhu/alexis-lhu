@@ -1,6 +1,6 @@
 # Alexis Lhussiez
 # 💫 About Me:
-IT Student
+IT Student at Junia XP
 
 
 ## 🌐 Socials:
